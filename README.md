@@ -1,4 +1,4 @@
-                                                 **Recreational-Spring-Open-Gym-Activities**
+                                            **Recreational-Spring-Open-Gym-Activities**
 
 **Overview:**
 
